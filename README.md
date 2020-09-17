@@ -1,5 +1,7 @@
-### Hi there 👋
+говно жрать ГОВНО жрать))))))
 
+- 🔭 👯 I’m c👯 urrently wor working on ...
+- 🌱king on ...
 <!--
 **kun9ka/kun9ka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
